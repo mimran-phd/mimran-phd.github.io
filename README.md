@@ -1,2 +1,2 @@
 # mimran-phd.github.io
-My pers
+My personal profile
